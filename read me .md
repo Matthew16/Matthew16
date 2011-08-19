@@ -1,1 +1,1 @@
-i hate english 
+watched khanacademy video
