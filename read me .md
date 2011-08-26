@@ -1,1 +1,1 @@
-watched khanacademy video
+worked on codeacademy 6
